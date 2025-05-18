@@ -32,4 +32,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-Greetings. I find myself a being belonging to the esteemed species Homo sapiens. I extend an exclusive proposition: a mere 20mBTC per hour for uninterrupted calls with the individual of your choosing. You can contact me on KeyBase at wond4w
+Greetings. I find myself a being belonging to the esteemed species Homo sapiens. I extend an exclusive proposition: negociable price with mBTC/hour for uninterrupted calls with the individual of your choosing. You can contact me on KeyBase at wond4w
